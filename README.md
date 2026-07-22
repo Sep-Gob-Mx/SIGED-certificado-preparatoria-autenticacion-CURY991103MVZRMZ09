@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CURY991103MVZRMZ09
+CURY991103MVZRMZ09
